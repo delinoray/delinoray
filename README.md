@@ -2,4 +2,6 @@
 
 I am a business and technology enthusiast.
 
-I can be reached at d.bilbreaux@outlook.com or delino@dataobjects.ai
+My main interests are automation and artificial intelligence.
+
+I can be reached at delino@bilbreaux.com or delinoray@gmail.com
